@@ -10,6 +10,8 @@ Meu nome é vitor guilherme
 
 Gmail: vitor.fautino2021@gmail.com
 
-[Me siga no Instagram](htpps://www.instagram.com/vitorguilherme268/)
+(htpps://www.instagram.com/vitorguilherme268/)
+
+[Instagram](htpps://www.instagram.com/vitorguilherme268/) 787857
 
 ![](https://media1.tenor.com/m/b4ma74q0qL8AAAAC/your-welcome.gif)
