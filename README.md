@@ -8,6 +8,7 @@ Meu nome é vitor guilherme
 
   ### Você pode entrar em contato comigo 📧
 
-  vitor.fautino2021@gmail.com
+Gmail: vitor.fautino2021@gmail.com
+Instagram:  @ vitorguilherme268
 
 ![](https://media1.tenor.com/m/b4ma74q0qL8AAAAC/your-welcome.gif)
