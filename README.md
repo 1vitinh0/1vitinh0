@@ -6,7 +6,7 @@ Meu nome é vitor guilherme
 - Estou me desenvolvendo na linguagem javaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-  ### Você pode entrar em contato comigo 📧
+## Você pode entrar em contato comigo 📧
 
 # [Gmail]: vitor.fautino2021@gmail.com
 
